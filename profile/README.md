@@ -1,4 +1,4 @@
 # Загипычи
 
-- zagip.ru
+- https://zagip.ru
 - https://t.me/+OtxxYjLgRP00NzVi
